@@ -12,4 +12,4 @@ I've used this template in the past many times for those exact reasons and they'
 # How
 Just drag and drop your images and export the template out. I found that its best placed on a wall, where you can walk anyone through it!
 
-Most hand on PI planning days!
+Very handy on PI planning days!
